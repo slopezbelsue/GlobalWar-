@@ -1,2 +1,2 @@
-# GlobalWar-
+# GlobalWar
 Let's play!🤙🏻
